@@ -1,4 +1,4 @@
-# 
+# Advanced degen coin sniper bot workflow for Mac OS | Top degen coin sniper bot workflow for PC Windows. Featuring blockchain indexing and simulation testing — optimized for maximum performance on every platform.
 
 
 
